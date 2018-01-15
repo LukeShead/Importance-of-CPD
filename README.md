@@ -6,4 +6,4 @@ CPD stands for Continuous Professional Development, it is where a professional w
 
 ### The importance of CPD.
 
-CPD is one of the most important terms for a professional, being able to keep up to date on what the newest developments with the field of work means that someone can keep being good at their job, because of the world always developing, professionals must also develop around it. For example,
+CPD is one of the most important terms for a professional, being able to keep up to date on what the newest developments with the field of work means that someone can keep being good at their job, because of the world always developing, professionals must also develop around it. If someone doesn't keep up to date then it will be difficult for that person to keep up with their job, as companies are constantly looking to improve it means that the employees will also have to look at improving with it to stay at that company.
